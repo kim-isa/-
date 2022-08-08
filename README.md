@@ -1,1 +1,1 @@
-# fazendo-isto-por-obriga-o
+# fazendo-isto-por-obrigacao
